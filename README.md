@@ -1,1 +1,1 @@
-jeg har jot oppgavene til oving2-3
+jeg har nogenlundi jort alle oppgavene til oving2-3
